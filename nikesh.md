@@ -1,0 +1,1 @@
+My favourite day of the week is Friday!
