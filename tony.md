@@ -1,3 +1,3 @@
 My name is Tony
 
-yo
+My favorite day is Friday!
